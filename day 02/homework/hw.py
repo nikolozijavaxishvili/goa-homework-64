@@ -1,1 +1,1 @@
-#kodi dasaweri ar iyo
+# ara peri dasaweri ar iyo
